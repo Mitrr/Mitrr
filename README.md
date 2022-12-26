@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Mitrr
+- 👀 I’m interested in web2, web3
+- 🌱 I’m currently work in web, frontend
+- 📫 How to reach me mitrskoggson@gmail.com
